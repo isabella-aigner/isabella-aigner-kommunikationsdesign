@@ -1,1 +1,1 @@
-# isabella-aigner-praktikum
+# isabella-aigner-kommunikationsdesign
